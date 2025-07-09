@@ -10,4 +10,4 @@
 
 本平台汇聚海量欧美成人综合视频资源，涵盖各种热门类别和优质内容，致力于为用户带来高清流畅的观影体验。每日更新，保证资源新鲜丰富，满足不同喜好需求。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/but20250709/but14 ）</span>
